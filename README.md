@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @justinaHR
+- 👀 I’m an HR Manager looking for rockstars to join us in Dubai, UAE offices!
+- 🌱 I’m currently learning to understand what motivates great-minded developers in their further career plans and personal aspirations.
+- 📫 How to reach me - shoot me a message on LinkedIn (Justina Kubiliute) or via email justina@oregano-leads.com
